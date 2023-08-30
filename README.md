@@ -14,6 +14,6 @@ This Is a tool which can used for download any type of YouTube video.And This is
 
 [=] and paste the link of the YouTube video which you need to download
 
-============= [MORE] ==============
+============= [MORE] =============
 
 AND SUBSCRIBE RIP'S WORLD FOR GET MORE TOOLS LIKE THIS!
